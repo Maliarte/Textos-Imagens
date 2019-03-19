@@ -1,2 +1,2 @@
 #produção
-disponível em www.maliarte.com.br
+disponível em www.maliarte.com.br www.desasnando.com
